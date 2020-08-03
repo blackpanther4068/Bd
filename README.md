@@ -1,0 +1,2 @@
+# Bd
+Bd of idiot 
